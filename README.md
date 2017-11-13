@@ -1,1 +1,2 @@
 # primary-code
+ Augustus could just make out the snake, coiled in the corner, but decided not to shoot it; on a quiet spring evening in lonesome Dove, a shot could cause complications. Everybody in town would hear it and conclude either that the Comanches were down from the plains or the Mexicans up from the river. If any of the customers of the Dry Bean, the town's one saloon, happened to be drunk or unhappy-Which was very likely-they would probably run out into the street and shoot a Mexican or two, just to be on the safe side. 
